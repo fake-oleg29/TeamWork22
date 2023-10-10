@@ -1,1 +1,1 @@
-Shmyheliuk.Shmyheliuk.Oleh.Orest
+Shmyheliuk.Shmyheliuk.Oleh.Orеst
